@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mattihanna
+- 👀 I’m interested in make things better, easyer and faster
+- 🌱 I’m currently looking for the easyest way to deal with coding for creating usefull apps and websites
+- 📫 to reach me please send me here mykalimat@mykalimat.com or iraqielites@gmail.com 
